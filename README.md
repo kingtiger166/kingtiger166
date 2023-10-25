@@ -1,16 +1,12 @@
-### Hi there 👋
+### ✠PANZERKAMPFWAGEN✠
 
-<!--
-**kingtiger166/kingtiger166** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- `russos são loucos`
+- `não sou nazista`
+- `gosto dos equipamentos da alemanha em especial dos ano de 1941`
+- `site bem completo de tanques` [tank encyclopedia](https://tanks-encyclopedia.com/ww2/germany/panzers.php)
+- `não tenho midias sociais`
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/DCl9tieX0gIAAAAC/rail-gun.gif)
+![](https://media.tenor.com/83RvBkP-Ge4AAAAi/pat-tank.gif)
+![](https://media.tenor.com/En70nU56TTAAAAAC/tiger-tank.gif)
+![](https://media.tenor.com/hRJyJItxn6EAAAAC/ww2-tank.gif)
